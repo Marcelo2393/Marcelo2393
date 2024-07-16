@@ -1,5 +1,5 @@
 # 💫 Sobre mi:
-🔭 Bachiller en Estadística👯 Data Sciencie🤝 Profesor🌱 Investigador💬 Autodidacta⚡Amante de la cocina, deporte y buena música
+🔭 Bachiller en Estadística 🔭 Data Sciencie 🔭 Profesor🌱 Investigador💬 Autodidacta⚡Amante de la cocina, deporte y buena música
 
 
 ## 🌐 Socials:
